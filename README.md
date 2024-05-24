@@ -1,7 +1,6 @@
 # 💫 **🔍 AI Maverick ⚡️**:
 <br>Diving headfirst into the boundless realm of Machine Learning and Artificial Intelligence, where the future of innovation awaits! 🚀<br><br>🌊 Currently resurfacing in the AI ocean, thirsty for the latest breakthroughs and advancements! 🌊<br><br>🎨 Portfolio Pulse: Check out my artistic expressions of AI in motion at [Portfolio Link](https://subin-vidhu.github.io/) - a glimpse into my AI odyssey! 🌊<br><br>💊 Medical Explorer: Your go-to man for AI in healthcare! Ask me, and let's revolutionize medical wonders together! 💊<br><br>🏀 Downtime: When not harnessing AI power, you'll find me cheering on my favorite NBA teams, following cricket tournaments, binging movies/series...🤖<br><br>📱 Want to collab or chat about AI, life, and everything in between? Reach out at [@gmail.com](mailto:subinvidhu3232@gmail.com) and let's spark a conversation! 💬
 
-
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/https://www.instagram.com/_subin_vidhu/) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://www.linkedin.com/in/subinvidhu/) [![Quora](https://img.shields.io/badge/Quora-%23B92B27.svg?logo=Quora&logoColor=white)](https://quora.com/profile/https://www.quora.com/profile/Subin-S-140) [![X](https://img.shields.io/badge/X-black.svg?logo=X&logoColor=white)](https://x.com/https://twitter.com/Subin_vidhu) 
 
